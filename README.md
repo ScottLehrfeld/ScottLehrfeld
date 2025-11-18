@@ -1,1 +1,1 @@
-## Scott Lehrfeld's GitHuH
+## Scott Lehrfeld's GitHub
